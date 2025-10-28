@@ -1,2 +1,2 @@
-The statement from POSN Camp 1 at Traim Udom Pattanakan Ubon Ratchatani 
+The statements from POSN Camp 1 at Triam Udom Suksa Pattanakarn Ubon Ratchatani 
 Center : UBU (Ubon Ratchatani University)
